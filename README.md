@@ -1,3 +1,0 @@
-# Punomi-birthday
-# punom
-# punom
